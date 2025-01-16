@@ -1,5 +1,5 @@
 
- read my [straws for my pages](https://thespirit.straw.page/)!! o((>ω< ))o
+ read my [strawpage](https://thespirit.straw.page/)!! o((>ω< ))o
 
 ![they must scissor now](https://github.com/user-attachments/assets/5e06412e-8d38-4c86-ab50-92e86d012f87)
 
