@@ -1,5 +1,5 @@
 
- read my [rentry](https://rentry.co/miilaandthegeeks)!! o((>ω< ))o
+ read my [rentry](https://rentry.co/nyoturgre)!! o((>ω< ))o
 
 ![cuties](https://files.catbox.moe/017vdi.png)
 
